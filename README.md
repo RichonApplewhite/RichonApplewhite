@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RichonApplewhite
 - 👀 I’m interested in building and creating applications, video game design, and making websites
-- 🌱 I’m currently enrolled at CTS College, doing my Bachelor in Information Technology, I am in my first year and I hope to keep on expanding my knowledge 
+- 🌱 I’m currently enrolled at CTS College, doing my Bachelor in Information Technology, I am now starting my second year and I hope to keep on expanding my knowledge 
 - 📫 How to reach me @ richonapplewhite06@gmail.com
 - 😄 Pronouns: he/him
 
